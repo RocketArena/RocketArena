@@ -15,5 +15,5 @@ $${\color{#4f9dc4}\text{I'm 18! If that bothers you, block or hide me!}}$$
 
 $${\color{#4082a3}\text{17+ int, 16- iwcaution}}$$
 
-$${\color{#2e6e8f}\text{Frequent mood changes and sudden outbursts (Im getting help dw)}}$$
+$${\color{#2e6e8f}\text{Frequent mood changes and sudden emotional outbursts (Im getting help dw)}}$$
 
