@@ -2,7 +2,7 @@ $${\color{#4f9dc4}\text{─── ⋆⋅☆⋅⋆ ──꒷꒦︶꒷꒦︶ ๋ �
 
 $${\color{#4f9dc4}\text{hi}}$$
 $${\color{#3f7b99}\text{Im Rocket irl /srs}}$$
-$${\color{#376e8a}\text{Be nice to me}}$$
+$${\color{#376e8a}\text{Be nice to me | iwcare always.}}$$
 $${\color{#266f94}\text{Part of my fandoms? Dont b shy to c+h with me!!}}$$
 
 ---
