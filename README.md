@@ -4,6 +4,7 @@ $${\color{#4f9dc4}\text{hi}}$$
 $${\color{#3f7b99}\text{Im Rocket irl /srs}}$$
 $${\color{#376e8a}\text{Be nice to me | iwcare always.}}$$
 $${\color{#266f94}\text{She / all pronouns - masculine, feminine, and gender neutral prns are alright}}$$
+$${\color{#266f94}\text{Bi-masculine!}}$$
 
 ---
 
