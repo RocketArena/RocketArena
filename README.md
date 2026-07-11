@@ -1,20 +1,12 @@
-$${\color{#4f9dc4}\text{─── ⋆⋅☆⋅⋆ ──꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦─── ⋆⋅☆⋅⋆ ──}}$$
-
-$${\color{#4f9dc4}\text{hi}}$$
-$${\color{#3f7b99}\text{Im Rocket irl /srs}}$$
-$${\color{#376e8a}\text{Be nice to me | iwcare always.}}$$
-$${\color{#266f94}\text{She / all pronouns - masculine, feminine, and gender neutral prns are alright}}$$
-$${\color{#266f94}\text{Bi-masculine!}}$$
+<img width="1996" height="869" alt="Image" src="https://github.com/user-attachments/assets/a57cdfa5-546b-4523-8c92-ac9066aab4a8" />
 
 ---
 
-<img width="1045" height="399" alt="Image" src="https://github.com/user-attachments/assets/770e2eae-8f66-4a86-85e1-99461c9ad486" />
+<p align="center"> $\color{#48494a}{\text{You were always a violent creature,}}$
+<p align="center"> $\color{#48494a}{\text{But I never blamed you for that,}}$
+<p align="center"> $\color{#48494a}{\text{I mean, look at the way you were raised,}}$
+<p align="center"> $\color{#48494a}{\text{No one would be normal after that...}}$
 
 ---
 
-$${\color{#4f9dc4}\text{I'm 18! If that bothers you, block or hide me!}}$$
-
-$${\color{#4082a3}\text{17+ int, 16- iwcaution}}$$
-
-$${\color{#2e6e8f}\text{Frequent mood changes and sudden emotional outbursts (Im getting help dw)}}$$
-
+<img width="1996" height="859" alt="Image" src="https://github.com/user-attachments/assets/9625037f-15e9-41bb-a0d5-9302f0d1fcd9" />
