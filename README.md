@@ -19,7 +19,7 @@ $\color{#c48fc4}{\textsf{!}}$ <br>
 <br>
 $\color{#87a0c9}{\textsf{sillymeowthy (Smile) <- Tiktok}}$ <br>
 <br>
-$\color{#87a0c9}{\textsf{r0cketarena <- Discord}}$ <br>
+$\color{#87a0c9}{\textsf{rocketarena_ <- Discord}}$ <br>
 <br>
 $\color{#87a0c9}{\textsf{too lazy to encode a link here}}$ <br>
 
