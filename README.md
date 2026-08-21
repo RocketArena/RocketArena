@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://github.com/user-attachments/assets/eab3be89-3312-4cbe-bf98-b2de90ce87f5" width="200"> <br clear="left"/> $\color{#4365B3}{\textsf{Hi!}}$
-$\color{#4365B3}{\textsf{Rocket irl . doubles iwc unless friendly}}$<br>
+$\color{#4365B3}{\textsf{Rocket kin . doubles iwc unless friendly}}$<br>
 <br>
 $\color{#4365B3}{\textsf{Extreme mood swings . Depressive moody grump or Whimsy ass fella }}$ <br>
 <br>
