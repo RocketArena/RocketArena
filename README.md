@@ -5,7 +5,7 @@ $\color{#4365B3}{\textsf{Extreme mood swings . Depressive moody grump or Whimsy 
 <br>
 $\color{#4365B3}{\textsf{Zuka and Sword pilled <-INT is highly appreciated!}}$ <br>
 <br>
-$\color{#4365B3}{\textsf{DNI list in strawpage(Removed the link cuz I gotta redo it)}}$
+$\color{#4365B3}{\textsf{DNI list in strawpage}}$
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/8669794e-bcff-48ec-9c8c-b2fe8092d73b" width="200"> <br clear="left"/> $\color{#c48fc4}{\textsf{I'm 18 , 16 below iwc!}}$ <br>
 <br>
