@@ -9,4 +9,4 @@
 <p align="center"><img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/42278ad1-226c-40d2-96f9-9f5a45b96fc6" /> <br>
 
 <p align="center"> $\color{#4365B3}{\textsf{I also love my friends!!! Other fictkins int, doubles too!}}$<br>
-<p align="center"> $\color{#4365B3}{\textsf{If youre wondering if Im a yumeshipper, not really, more a fictkin w comf characters!!}}$<br>
+<p align="center"> $\color{#4365B3}{\textsf{If youre wondering if Im a yumeshipper, not really, more of a fictkin w comf characters!!}}$<br>
