@@ -1,6 +1,6 @@
 <p align="center"> $\color{#4365B3}{\textsf{Heya}}$<br>
 <p align="center"> $\color{#4365B3}{\textsf{Im a Rocket highkin but you can call me Kett || Smile || Meo}}$<br>
-<p align="center"> $\color{#4365B3}{\textsf{Dni/Iwc -16 , I dont wanna be weird lowk`}}$<br>
+<p align="center"> $\color{#4365B3}{\textsf{ Idc what age you are just dont be weird, k??}}$<br>
 <p align="center"> $\color{#4365B3}{\textsf{Check my straw for more info cuz im lazy to code allat}}$<br>
 <p align="center"> $\color{#4365B3}{\textsf{I am also mentally unstable due to past trauma experiences, so I appreciate it if you're patient with me during my mood swings}}$<br>
 
